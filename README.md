@@ -9,7 +9,7 @@
 🌱 Currently vibin’ & building in the **GenAI space**  
 🔥 Exploring **LLMs, RAG, Image Gen Models** & all things AI  
 💼 Hustling towards **entrepreneurship & impactful projects**  
-⚡ Fun fact: I debug faster with **lo-fi beats & chai ☕**  
+⚡ Fun fact: I debug faster with **EDM beats & coffee ☕**  
 
 ---
 
